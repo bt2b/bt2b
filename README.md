@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @bt2b
+- 🌱 I’m currently learning the fundamentals and basics.
+- 
